@@ -1,4 +1,4 @@
-# 
+# smart new token sniper bot | liquidity-sniping + blockchain-scanning is the best new token sniper bot, featuring liquidity-sniping and blockchain-scanning. Fast, smart, and
 
 
 
